@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @valentine19755
 - 👀 I’m interested in Football
 . 🌱 I’m currently learning software engineering
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on....
 - 📫 How to reach 07067854225 My WhatsApp number
 - 😄 Pronouns: Te-ji-ri or Te-ej-ay 
 - ⚡ Fun fact: I was born on February 14
